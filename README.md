@@ -14,11 +14,66 @@ pronouns: he/they !
 
 ' my dni is basic dnis
 
-' int list: tror and yaoi lelell & etc
+'
 
-' I like cyan
 
-'I like cyan
 
-' I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan
-I like yello
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.. / -.- -. --- .-- / -.-- --- ..- / .-- .. .-.. .-.. / .-. . .- -.. / - .... .. ... / .-.. . - / -- -.-- / ... --- ..- .-.. / .-. . ... - / .. ...- . / -. . ...- . .-. / -... . . -. / ..-. .. -. . / .. / -. . . -.. / .... . .-.. .--. / .. -. / - .... .. ... / .-- --- .-. .-.. -.. / .... . .-.. .-.. / -. . ...- . .-. / ..-. . . .-.. / ... .- ..-. .
+
+- .... . .-. . / .- .-. . / -. --- / .... --- .--. . / ..-. --- .-. / .-.. .. ...- .. -. --.
+
+-.-- --- ..- / -- ..- ... - / ... ..- .-. ...- .. ...- .
+
+.-- .... .- - ... / - .... . / .--. --- .. -. -
+
+.... .- ...- . / -.-- --- ..- / . ...- . .-. / - .... .. -. -.- / --- ..-. / - .... . / -- . .- -. .. -. --. / --- ..-. / .-.. .. ..-. .
+
+.- .-.. .-.. / .. ...- . / -.. --- -. . / .. ... / -. --- - .... .. -. --.
+
+-... ..- - / .. / -.. --- / .... .- ...- . / .- / .--. ..- .-. .--. --- ... .
+
+- --- / -- .- -.- . / -.-- --- ..- / ... -- .. .-.. .
+
+.-.. .. -.- . / .. - ... / .-- --- .-. - .... / .. -
